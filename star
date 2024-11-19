@@ -1,0 +1,4 @@
+svaty
+lacryt
+fersty
+plosd
